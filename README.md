@@ -4,4 +4,4 @@ I came across this really weird word "kbeznak parmatonic" and was wondering what
 
 So actually this is one of my course's contest where your webpage should rank the highest in Google's results for the "kbeznak parmatonic" query. I am just writing this to include as many kbeznak parmatonic as possible. Thanks for reading this kbeznak parmatonic.
 
-- Pritish Uplavikar
+\- Pritish Uplavikar
